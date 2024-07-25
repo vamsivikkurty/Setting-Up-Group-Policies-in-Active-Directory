@@ -40,7 +40,7 @@ Contributions are welcome! If you have any suggestions for improvements or find 
 
 ### Contact
 
-For questions or further information, please contact lukesundar@gmail.com
+For questions or further information, please contact vamsivikkurty12345@gmail.com
 
 ---
 
